@@ -28,3 +28,8 @@ Onboarding Project for the Open-Source Development Team
 - I use arch btw - agam
 - :]
 - Pineapples on pizza is just OK
+- Anyone have a laptop charger?
+- Here we go again...
+-Pineapple is the best topping on pizza
+- Hi!
+- Check out my repos :P
